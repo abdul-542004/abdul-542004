@@ -4,7 +4,7 @@
 
 🌱 **I'm always eager to learn and explore new technologies. My goal is to create software that addresses real-world problems.**  
 🚀 **Actively seeking opportunities to collaborate on exciting projects and contribute to open-source initiatives.**  
-📫 **You can reach me at:** [your.email@example.com](mailto:abdullahkhan542004@gmail,com)  
+📫 **You can reach me at:** [abdullahkhan542004@gmail.com](mailto:abdullahkhan542004@gmail.com)  
 😄 **Pronouns:** he/him  
 ⚡ **Fun fact:** *Creativity, curiosity, and tenacity are my prominent qualities. If I am determined to do something, I'll approach it creatively, stay curious throughout, and persevere no matter what.*  
 
